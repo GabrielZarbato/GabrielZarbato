@@ -2,6 +2,6 @@
 - 🌱 I’m currently learning HTML | CSS | JS & Java
 - 💬 Ask me about my goals ✨
 - 📫 How to reach me: email me -> gabrielzarbatto1214@gmail.com
-- 😄 Pronouns: he/him
+- 😄 Pronouns: yes
 - "Don`t waste your time always searching for those wasted years..."
 
